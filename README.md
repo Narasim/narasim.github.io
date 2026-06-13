@@ -1,2 +1,2 @@
-# narasimhuluyeggoli.github.io
+# narasim.github.io
 My Personal Page
